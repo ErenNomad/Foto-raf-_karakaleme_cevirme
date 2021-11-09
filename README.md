@@ -1,1 +1,1 @@
-# Fotografı_karakaleme_cevirme
+FOTOGRAFI_KARAKALEME_CEVİRME
